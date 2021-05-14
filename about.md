@@ -10,3 +10,4 @@ Amado Suarez is a software engineer with an interest in technology, software dev
 + [GitHub](https://github.com/AmadoSuarez/) 
 + [LinkedIn](https://linkedin.com/in/amadosuarez/)
 + [Twitter](https://twitter.com/amadosuarezr)
++ [Instagram](https://instagram.com/amadosrz)
